@@ -4,4 +4,4 @@ Red is my favourite color
 Swahili is my favourite language
 Chinese ,African restaurents are my  favourite 
 
--My favoritelanguage is Chinese (Diana)
+-My favorite language is Chinese (Diana)
